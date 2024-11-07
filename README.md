@@ -1,5 +1,3 @@
-# Hi there 👋
-
-## Connect with Me
+# Hello there ⁉️
 
 [Linktree](https://linktr.ee/sterfput)
